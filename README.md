@@ -1,2 +1,4 @@
 # Hello-World
 Creating a members Society to protect personal freedoms for everyone anywhere. 
+Life has granted me with a very unique view on the world. I have never been able take anything at face value always asking the why and when anyone tried to exsert athority over me. I found my self at odds with every athority figure growing up, even knowing i was in the right. I have managed to overcome the labels and branding that has clouded me much of my life. I found reason why i had to take the road that was laid before me. leading me to my personal life mission to bild the society to protect the personal rights for every person on this planet. Much of the information i have collected runs contrary with the infomation shared with the general public.
+However this information i will present is all easy to confirm.quickly others will see why the society is of vital important to the living breathing souls on the planet to come together.
